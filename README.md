@@ -16,3 +16,7 @@ Gained expertise in structural failure prediction techniques.
 Strengthened skills in computational mechanics and real-world problem-solving.
 Developed a methodology for failure analysis of submersibles under extreme environmental conditions.
 
+You can access further details and report from here :
+
+https://www.linkedin.com/in/taimour-z-41a39a290/details/projects/
+
